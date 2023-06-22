@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RubenTheProgrammer
+- 👀 I’m interested in video game and software development
+- 🌱 I’m currently a student
+- 💞️ I’m looking to collaborate on nothing in particular
+- 📫 How to reach me: rubencasiraghi07@gmail.com
